@@ -8,6 +8,7 @@ Now let me share my hobbies to yuo, they are as follows:
 1. Playing sports like Cricket and Basketball.
 2. Reading self improving books (Atomic Habits one of my favourite)
 3. Playing Table Tennis.
-4. Last but not the least doing **_CODING_**\\
+4. Last but not the least doing **_CODING_**\
+   
 This is pretty muvh about my self. If you like contact me you can email me at **mohammadshabbir.39061@gmail.com**.
 
